@@ -1,4 +1,4 @@
-# 
+# Get the ultimate new token sniper bot with exclusive new token sniper bot | auto-buy + contract-verification. Featuring auto-buy and contract-verification, it's the best choice
 
 
 
